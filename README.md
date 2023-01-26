@@ -1,1 +1,1 @@
-pag WEB para CMYB: https://juanrinconp.github.io/CMYB/
+pag WEB para CMYB: https://consultoriacmb.com
